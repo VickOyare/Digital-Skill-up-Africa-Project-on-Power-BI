@@ -107,7 +107,7 @@ Location should also be considered in the following order:
 female staff should be encouraged more to take their participation in the growth of the organization seriously, that they can be rated more, since the male employyes are leading in the aspect of rating.
 Gifts and award should be given to the outstanding staff especially the female staff so that they can be motivated to put more effort especially in Lagos region.
 
-
+My dashboard is in the uploadede files, please click and see
 
 
 
