@@ -92,8 +92,20 @@ Total amount of money to be paid-out inclusive of salary and bonus per region an
           Total = $72,105,739.22
 
 
-
-
+### Conclussion:
+There is gender gap (inequality) in the company and the should be corrected.
+Deparment that should be focused on mostly are:
+- Product Management
+- legal
+- support
+- accounting
+- And Research
+Location should also be considered in the following order:
+- kaduna
+- Lagos
+- Abuja
+female staff should be encouraged more to take their participation in the growth of the organization seriously, that they can be rated more, since the male employyes are leading in the aspect of rating.
+Gifts and award should be given to the outstanding staff especially the female staff so that they can be motivated to put more effort especially in Lagos region.
 
 
 
